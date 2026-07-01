@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **mohammed.f.saqqaf@gmail.com**
 
-- 📄 Know about my experiences [https://saggaf-soft.wuaze.com](https://saggaf-soft.wuaze.com)
+- 📄 Know about my experiences
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
